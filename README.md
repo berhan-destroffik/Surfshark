@@ -235,4 +235,4 @@ Surfshark is available as a **complete free version**, meaning you have access t
 Don't wait! **Download Surfshark free now** and secure your online presence with confidence.
 
 ---
-**Last updated:** 2026-09-17 23:52:03 UTC
+**Last updated:** 2026-09-18 02:55:31 UTC
